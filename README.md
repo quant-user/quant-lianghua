@@ -19,4 +19,4 @@
 
 #### 每日实盘记录
 
-[2023-09-13 22:34 ,实盘盈利记录](https://www.bilibili.com/read/preview/26508740)
+[2023-09-13 22:38 ,实盘盈利记录](https://www.bilibili.com/read/preview/26508787)
