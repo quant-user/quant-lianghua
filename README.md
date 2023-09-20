@@ -24,3 +24,5 @@
 [2023-09-18 00:31 ,实盘盈利记录](https://www.bilibili.com/read/cv26580056/?jump_opus=1)
 
 [2023-09-18 15:45 ,实盘盈利记录](https://www.bilibili.com/read/cv26591000/?jump_opus=1)
+
+[2023-09-20 15:15 ,实盘盈利记录](https://www.bilibili.com/read/cv26630562/?jump_opus=1)
