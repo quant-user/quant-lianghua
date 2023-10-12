@@ -34,3 +34,5 @@
 2023-10-10 15:46 ,更新实盘盈利记录 
 
 2023-10-11 15:46 ,更新实盘盈利记录 [B站](https://www.bilibili.com/read/cv27000188/?jump_opus=1) 
+
+2023-10-12 15:16 ,更新实盘盈利记录 [B站](https://www.bilibili.com/read/cv27021214/?jump_opus=1) [雪球](https://xueqiu.com/u/1713317469) 
