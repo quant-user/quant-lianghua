@@ -92,3 +92,5 @@
 2023-11-21 15:16 ,更新实盘盈利记录 [雪球](https://xueqiu.com/u/1713317469) [知乎](https://zhuanlan.zhihu.com/p/668001322) 
 
 2023-11-22 15:31 ,更新实盘盈利记录 [雪球](https://xueqiu.com/u/1713317469) [知乎](https://zhuanlan.zhihu.com/p/668203471) 
+
+2023-11-23 16:01 ,更新实盘盈利记录 [雪球](https://xueqiu.com/u/1713317469) [知乎](https://zhuanlan.zhihu.com/p/668414508) 
